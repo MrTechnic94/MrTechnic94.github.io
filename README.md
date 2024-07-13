@@ -1,2 +1,2 @@
 # MrTechnic94.github.io
-DragonX Terms and Privacy
+Terms and Privacy
